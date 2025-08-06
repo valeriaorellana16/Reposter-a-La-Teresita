@@ -1,2 +1,2 @@
-# Reposter-a-La-Teresita
+# Reposteria-La-Teresita
 Repostería ubicada en Ciudad de Guatemala.
